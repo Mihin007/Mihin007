@@ -1,4 +1,4 @@
-![A Passionate Web Developer From Bangladesh](https://pbs.twimg.com/profile_banners/1575829042221105152/1683927785/1500x500)
+![A Passionate Web Developer From Bangladesh](https://i.postimg.cc/6qhMmbyG/MD-MAHAMUD.png)
 
 ## 👋 Hello, I'm Mahamud Jaman Mihin
 
